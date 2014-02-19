@@ -7,4 +7,4 @@ On Feb 13th, Doug and Corey contributed to the open data policy
 
 And the CIO wuz here as well. It is what it is man.
 
-TY$$ Civ Engagement Coordinator In da house
+## Wednesday is the nicest day of the week so far, woo hoo!
